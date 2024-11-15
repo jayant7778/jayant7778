@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jayant7778
-- 👀 I’m interested in Artificial intelligence and Cloud computing
+- 👀 I’m interested in Artificial intelligence and Product Development
 - 🌱 I'm a Working Professonal
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me jayant7778@gmail.com
